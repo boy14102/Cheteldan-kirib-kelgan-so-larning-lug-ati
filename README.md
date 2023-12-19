@@ -1,0 +1,1 @@
+# Cheteldan-kirib-kelgan-so-larning-lug-ati
